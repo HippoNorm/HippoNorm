@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HippoNorm
 - 👀 I’m interested in tiny coins
 - 🌱 I’m currently learning XYZ
-- 💞️ I’ll follow anyone if the know where they're going
+- 💞️ I’ll follow anyone if they know where they're going
 - 📫 How to reach me ..hmm, I'm a bit shy
 
 <!---
