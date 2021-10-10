@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HippoNorm
 - 👀 I’m interested in tiny coins
-- 🌱 I’m currently learning XYZ
+- 🌱 I’m currently folowing Universe XYZ
 - 💞️ I’ll follow anyone if they know where they're going
 - 📫 How to reach me ..hmm, I'm a bit shy
 
